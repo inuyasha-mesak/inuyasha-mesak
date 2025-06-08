@@ -4,6 +4,7 @@
 🎓 B.Tech in Computer Engineering  
 💻 Passionate about C++, DSA, System Design  
 🚀 Building a strong GitHub portfolio to work in a leading technology company
+
 🌍 India | Open to global roles
 
 
