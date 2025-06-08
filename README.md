@@ -41,6 +41,6 @@
 
 ## 🔗 Connect with Me
 
-💼Linkedn - https://www.linkedin.com/in/mesak-lalrintluanga-296a93369
+💼Linkedn - https://www.linkedin.com/in/mesak-lalrintluanga-296a93369  
 📫Email   - mesakpachuau144@gmail.com  
 🌐GitHub  - https://github.com/inuyasha-mesak/inuyasha-mesak
